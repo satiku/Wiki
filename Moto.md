@@ -1,5 +1,23 @@
 # Moto
 
+## Chain Cleaning
+
+### Tools 
+
+- chain brush 
+- 10mm chain guard
+
+### Parts
+
+- chain cleaner
+- chain lube
+
+# Instructions
+
+1.
+
+2.
+
 
 ## Oil Change 
 
